@@ -1,0 +1,2 @@
+# KidsLearningWebsites
+On the hunt for free websites, you can use it for your elementary school? There's a ton out there, especially for helping kids learn and practice literacy and math skills. Out of the hundreds of websites for learning and to engage students and their pedagogical value as well as their utility in the classroom. These websites are here to help them pick up new skills and build solid foundations in math, science, and reading.
